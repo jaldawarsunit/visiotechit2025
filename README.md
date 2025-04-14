@@ -1,1 +1,0 @@
-# visiotechit2025
